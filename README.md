@@ -33,4 +33,4 @@
 <br>
 <br>
 <p align="center">FOTO SCRIPT🗿</p>
-<img src="https://k.top4top.io/p_2592j8dxm0.jpg"</img>
+<img src="https://i.top4top.io/p_2642798kp0.jpg"</img>
